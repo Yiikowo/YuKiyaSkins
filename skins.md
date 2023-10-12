@@ -1,4 +1,4 @@
-If a link stops working or wont work for you just message me on discord ( # ayikuy ) 
+## If a link stops working or wont work for you just message me on discord ( # ayikuy ) 
 
 ## Since i make skin edits reguarlly and with same circles / interface i wont be reuploading same skins if they are the same, there will be some exceptions tho
 
